@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-I'm Quant-focused trader with a background in STEM background 
+I'm Quant trader with a background in STEM background 
 Pursuing my Master's in Financial Engineering
 
 Former professional badminton player & 
