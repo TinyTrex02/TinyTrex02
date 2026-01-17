@@ -1,6 +1,5 @@
 ## Hi there 👋
 
-<!--
 Quant-focused trader with a background in Economics, Mathematics & Statistics from Christ University, Bangalore.
 Former entrepreneur—founded and scaled an eco-friendly sustainable venture, gaining hands-on experience in execution, risk, and decision-making.
 Transitioned into trading, building and testing systematic strategies across forex and crypto.
