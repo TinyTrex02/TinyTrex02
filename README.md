@@ -1,5 +1,5 @@
 # 💫 About Me:
-<br>I'm Quant trader with a background in STEM background <br>Pursuing my Master's in Financial Engineering<br><br>Currently  researching on systematic & directional trading strategies in Equities in Prediction Markets & Crypto <br><br>Former professional badminton player & <br>entrepreneur founded & scaled an eco-friendly sustainable venture<br><br>Outside markets: <br><br>- Strength training & Calisthenics<br>- Sport's psychology
+<br>I'm Quant trader with a background in STEM background <br>Pursuing my Master's in Financial Engineering<br><br>Currently  researching on systematic & directional trading strategies in Prediction Markets & Crypto <br><br>Former professional badminton player & <br>entrepreneur founded & scaled an eco-friendly sustainable venture<br><br>Outside markets: <br><br>- Strength training & Calisthenics<br>- Sport's psychology
 
 
 ## 🌐 Socials:
